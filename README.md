@@ -4,7 +4,7 @@
 
 ## Video Demo
 
-[Link to be added after upload]
+https://www.youtube.com/watch?v=mmBFbeNgYw4
 
 ## Description
 
